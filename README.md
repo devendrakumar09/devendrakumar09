@@ -45,7 +45,7 @@
 ---
 
 ## 📬 Let's Connect
-- 📧 Email: [your.email@example.com](mailto:your.cktdevendra955@gmail.com)
+- 📧 Email: [cktdevendra955@gmail.com](mailto:your.cktdevendra955@gmail.com)
 
 ---
 
